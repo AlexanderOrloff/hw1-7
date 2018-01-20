@@ -1,7 +1,7 @@
 # hw1
 ## Информация о себе
  ![](https://pp.userapi.com/c830401/v830401289/29478/-eLHc0_EOGo.jpg)
- **ссылки на соц сети:**
+ **Ссылки на соц сети:**
  + <https://vk.com/id273466828>
  - <https://www.instagram.com/_asoleil_/>
  
